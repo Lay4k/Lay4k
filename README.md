@@ -5,7 +5,7 @@
 - 📫 How to reach me: you can find me in the following e-mail; L4y4k@disroot.org.
 I highly recommend this alternative non-profit e-mail distributor because of it's encription and high security techniques.
 
-I'm here to learn all I can of the maximum topics in this only 1UP 🍄 life.
+I'm here to learn all I can of the maximum variety of topics in this only 1UP 🍄 life.
 
 <!---
 Lay4k/Lay4k is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
